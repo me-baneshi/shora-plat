@@ -21,3 +21,4 @@ The primary users of this application are the residents of villages in Iran that
 *   To enhance transparency in local decision-making processes.
 *   To support vulnerable populations through dedicated assistance programs.
 *   To encourage active participation and contribution from all community members towards collective progress.
+https://chatgpt.com/share/68325ee9-a3d8-800a-a1a3-3b5934e2f590
